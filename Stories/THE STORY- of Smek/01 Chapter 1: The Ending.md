@@ -27,4 +27,4 @@ Free Documentation License".
 
 
 
-Once there was a dude named smek. He had no friends and lived in a rotton old tree. One day he thought he might go on a journey, but before he could leave something tragic happened. What might that be? Why he got polio of course! He was severely crippled for the rest of his life and died because he could no longer gather food for himself.
+Once there was a fellow named Smek. He had no friends and lived in a rotton old tree. One day he thought he might go on a journey, but before he could leave something tragic happened. What might that be? Why he got polio of course! He was severely crippled for the rest of his life and died because he could no longer gather food for himself.
